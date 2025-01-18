@@ -27,17 +27,6 @@ As for 'Kornblume', it is a German word too, which means 'blue cornflower'. I li
 
 ## Some plans
 
-### Light novel
-
-Not decided yet, but I'm planning to write a light novel. I have some ideas, but I'm not sure whether I can finish it.
-
-- 《无业转生——到了非洲就要拿出真本事》 
-
-- 《当国际歌响彻宇宙》
-
-- 《火箭院的远视主义贤者》
-
-Sorry I can't come up with a good translation for these names.
 
 ### Learning
 
